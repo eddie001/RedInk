@@ -2,7 +2,7 @@
 
 <img src="images/2.png" alt="红墨 - 灵感一触即发 让创作从未如此简单" width="600"/>
 
-## 红墨官方站点上线啦，注册即送50体验积分！
+## 红墨官方站点上线啦，注册即送50体验积分！999
 
 ## 注册需要邀请码！可以到 https://watcha.cn/square/discuss#post_id=1380 获取
 
